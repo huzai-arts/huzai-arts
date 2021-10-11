@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @huzai-arts
+- 👀 I’m interested in Graphic Designing
+- 🌱 I’m currently learning Anatomy
+- 💞️ I’m looking to collaborate with a team of professionals to create NFTS
+- 📫 Contact me on huzaifaamir278@gmail.com
